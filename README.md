@@ -1,2 +1,0 @@
-# Planet
-PROJEKAT BRODA LUDAKA
